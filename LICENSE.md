@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pump.fun sniper bot with quantitative pump.fun sniper bot | auto-sell + honeypot-detection. Featuring auto-sell and honeypot-detection, it's the best choice for
 
 
 
